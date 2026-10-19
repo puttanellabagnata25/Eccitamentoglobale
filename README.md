@@ -1,2 +1,2 @@
-# Eccitamentoglobale
+
 Venite in diretta
